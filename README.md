@@ -1,4 +1,4 @@
-<h2 align="center">OnlyfansSearcher</h2>
+<h2 align="mcenter">OnlyfansSearcher</h2>
 <br>
 <br>
 
